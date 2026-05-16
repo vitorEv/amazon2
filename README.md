@@ -1,1 +1,1 @@
-https://vitorev.github.io/amazon/
+https://vitorev.github.io/amazon2/
